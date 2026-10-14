@@ -34,21 +34,21 @@ Follow them first, then DM. Read each one out loud before sending.
 >
 > Got 10 minutes at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
 
-### Collete Davis (PROSPEC, Collete Racing BMW #77) @colletedavis
+### Collete Davis (PROSPEC, Team ENEOS E46 BMW #77) @colletedavis
 
-> Hey Collete. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone through PROSPEC for three seasons.
+> Hey Collete. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone from Pro Am into PROSPEC.
 >
-> You already work on both sides of the lens, so you know what a brand can do with real footage versus a post.
+> You've hosted TV and you run your own channel, so you know what a brand can do with real footage versus a post.
 >
 > We're casting Season 4 now. You'd be in the show all season, plus content every round your partners can run as their own ads.
 >
 > Are you at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
 
-### Jerry Johnson (PROSPEC, Jerry Drift Toyota #97) @jerrydrift
+### Jerry Johnson (PROSPEC, Freedom Machinery C6 Corvette #97) @jerrydrift
 
-> Hey Jerry. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone through PROSPEC for three seasons.
+> Hey Jerry. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone from Pro Am into PROSPEC.
 >
-> "I like cats and going fast" is a better logline than most shows ever get. You'd be genuinely fun to film.
+> "I like cats and going fast" is a better logline than most shows ever get. Power steering trouble in the Top 4 at Indy and still finishing 4th is the kind of weekend the broadcast never explains.
 >
 > We're casting Season 4 now. You'd be in the show all season, plus content every round your partners can run as their own ads.
 >
@@ -68,7 +68,7 @@ Follow them first, then DM. Read each one out loud before sending.
 
 ## Message 1: PROSPEC driver
 
-> Hey [FIRST NAME]. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone through PROSPEC for three seasons.
+> Hey [FIRST NAME]. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone from Pro Am into PROSPEC.
 >
 > We're casting Season 4 now. The climb from PROSPEC to PRO is the story we like telling most. [ONE SPECIFIC LINE ABOUT THEIR 2026 SEASON]
 >
