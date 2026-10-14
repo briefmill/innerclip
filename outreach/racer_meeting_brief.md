@@ -1,7 +1,8 @@
 # RACER meeting brief (internal, do not share)
 
 Meeting: Brian Scotto (RACER). Matt is setting the date, target is next week, before Long Beach.
-Deck: "Inner Clip x RACER" v2 (Matt-led, named cast, scaling budget, RACER sells non-car partners).
+Deck: "Inner Clip x RACER" v2 (named cast with Matt as one of the lead cast, scaling budget, RACER sells non-car partners, no view-count slide). https://claude.ai/artifact/9wTGuo8MX1oGNwJK7r3CFx
+Earlier prep note on Lox's PC: `D:\Github\innerclip-doc\pitch\RACER-MEETING-PREP.md`. Merge the two before the meeting.
 
 ## Before the meeting (with Matt and Brandon)
 
@@ -15,7 +16,7 @@ Deck: "Inner Clip x RACER" v2 (Matt-led, named cast, scaling budget, RACER sells
 1. **No exclusive rights for any broadcaster.** RACER gets the first window, not exclusivity. (Inner Clip, stated on the call.)
 2. **Inner Clip LLC keeps ownership** of the series and the library, Season 1 onward.
 3. **Inner Clip casts.** RACER can suggest drivers. Nobody is cast on budget alone.
-4. [Matt's #1: likely Matt stays the lead of the show]
+4. [Matt's #1: on the call he wants it to be his show. Lox's Oct 14 position: "matt is just one of the lead cast". Settle this before the meeting.]
 5. [Brandon's / Matt's other terms]
 
 ## Plan A, B, C
@@ -46,8 +47,14 @@ If they ask "could you produce this for the whole series?": don't answer on the 
 6. Who signs off at RACER, and what's their timeline to say yes before the 2027 season?
 7. What role does Taro have going forward? (Matt and Brandon want Scotto as the lead contact.)
 
+## Backup numbers (only if asked; lead with community impact, not views)
+
+- Season 3 on YouTube: about 87.6K views across 8 episodes as of Oct 14 (Robot Judge 20.8K, Chaotic 19.9K, Second Degree Burns 18.5K). Pulled in an earlier session; re-check in YouTube Studio before quoting.
+- Matt's channel: about 21K subscribers. Typical upload about 1.2K views vs about 20K per Inner Clip episode (Matt's figures, unconfirmed).
+- Instagram reels credited to Inner Clip: GT Radial tire temp, Long Beach 352K (Oct 14).
+- RACER Creator Awards: entered Best Motorsports Content (High Stakes) and Best Cinematic Videos (TALL ORDER). Winners announced Nov 19.
+
 ## Gaps the deck can't answer yet
 
-- Total Season 3 YouTube views and subscriber growth. The deck only has Instagram partner-reel views.
-- The lift on Matt's own channel. Matt said on the call it went from about 1,200 to about 20,000 views. Get the real numbers from his analytics before saying it.
 - Season 4 production cost, built up line by line: crew, travel, editing hires, gear.
+- The two named drivers and why each.

@@ -1,6 +1,10 @@
 # Inner Clip Season 4: Driver DM Scripts
 
-Sent from Lox's personal Instagram. Goal of message 1: a 10-minute talk at Long Beach or a 20-minute call. Never mention price in a DM. Price comes on the call (Drivers deck: $50K base, +$40K for "Your own Inner Clip", $90K both).
+Sent from Lox's personal Instagram. Goal of message 1: a 10-minute talk at Long Beach or a 20-minute call (booking link: calendar.app.google/JHYViWtyNVczoigt9). Never mention price in a DM. Price comes on the call (Drivers deck: $50K base, +$40K for "Your own Inner Clip", $90K both).
+
+Who gets it now: only the 4-8 drivers shortlisted for story, before the RACER meeting. Everyone else waits for the RACER outcome (decided Oct 14).
+
+The personal line for every one of the 73 drivers was already written on Sept 14 from their FD bios. It's in `briefmill_import_drivers.csv`, column `personal_line`. Read it before sending: these drivers compare notes, and a line that's slightly off is worse than a plain one. Follow the driver first, then DM.
 
 Rules (from the Inner Clip style sheet): short, declarative lines. No em dashes. No exclamation marks. Never invent a number. One real, specific line about the driver in every message.
 
@@ -41,17 +45,6 @@ Rules (from the Inner Clip style sheet): short, declarative lines. No em dashes.
 (The Drivers deck is private right now. Turn on link sharing for it before sending.)
 
 ---
-
-## Specific-line bank
-
-Pick one true thing. Pull it from the roster notes, never from memory.
-
-- Rookie season: "Your rookie year in [CLASS] is the kind of season people want to watch from the inside."
-- Strong result: "[ROUND] this year was one of the best runs of the season."
-- Comeback or rebuild: "The rebuild after [ROUND] is exactly the stuff the broadcast never shows."
-- Moving up: "If you're moving up to PRO for 2027, that's a whole season arc."
-- New car or build: "The [CAR] build is a story on its own."
-- Privateer or small team: "Small team, real results. That's the show."
 
 ## Before sending to anyone
 
