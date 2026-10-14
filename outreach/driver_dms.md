@@ -28,7 +28,27 @@ Follow them first, then DM. Read each one out loud before sending.
 
 > Hey Ryan. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. Season 3 we were embedded with Matt Field's team at every round.
 >
-> Pro 2 in 2014, more than a decade in Formula DRIFT, and FD trusted you to help redesign the Indy course. The grind seasons are the ones that actually explain this sport to people outside it.
+> Pro 2 in 2014, more than a decade in Formula DRIFT, and FD trusted you to help redesign the Indy course. The show needs someone who's seen enough of this paddock to tell people what's really at stake.
+>
+> We're casting Season 4 now. You'd be in the show all season, and every round we shoot content your partners can run as their own ads.
+>
+> Got 10 minutes at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
+
+### Branden Sorensen (PRO, Sorensen Motorsports BMW E46 #513, GT Radial) @branden_sorensen
+
+> Hey Branden. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. Season 3 we were embedded with Matt Field's team at every round.
+>
+> Top 8 at every round so far this year, on parts that come out of your family's shop. With Camren and Amanda in PROSPEC, the Sorensens are a season on their own.
+>
+> We're casting Season 4 now. You'd be in the show all season, and every round we shoot content your partners can run as their own ads.
+>
+> Got 10 minutes at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
+
+### Dylan Hughes (PRO, Dylan Hughes Racing BMW E46 #129, GT Radial) @dylanhughes129
+
+> Hey Dylan. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. Season 3 we were embedded with Matt Field's team at every round.
+>
+> From Chris Forsberg's crew in 2014 to your own shop and a PRO win. You and Matt already have history, from Utah last year to Long Beach this year, and that's a storyline we don't have to invent.
 >
 > We're casting Season 4 now. You'd be in the show all season, and every round we shoot content your partners can run as their own ads.
 >
