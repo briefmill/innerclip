@@ -12,7 +12,7 @@ Where the work stands as of Oct 14, 2026, and what happens next. Pulls together 
   - 16 named decision makers.
   - 2 warm intros: Josiah Tully and Taylor Andrew.
 - **Driver casting:** 73 FD drivers (34 PRO, 39 PROSPEC). Each has a verified Instagram handle and a personal DM line.
-- **Nothing has been sent.** Claude never sent anything. The master doc's "Contacted" labels are wrong. **Confirm whether Lox sent anything by hand.**
+- **Nothing has been sent** (confirmed by Lox, Oct 14). The master doc's "Contacted" and "Emailed" labels are wrong. Every driver and brand is a first contact.
 
 ## Decks
 
