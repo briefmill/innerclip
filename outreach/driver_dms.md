@@ -14,21 +14,21 @@ Rules (from the Inner Clip style sheet): short, declarative lines. No em dashes.
 
 Follow them first, then DM. Read each one out loud before sending.
 
-### Cole Richards (PRO, Richards Racing Toyota) @colerichardz
+### Cole Richards (PRO, Richards Racing Toyota GT86 #11, GT Radial) @colerichardz
 
 > Hey Cole. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. Season 3 we were embedded with Matt Field's team at every round.
 >
-> Rookie year done, family shop behind the car. Year two is where a PRO career gets decided, and that's the season worth filming.
+> Fourth at Long Beach in your PRO debut, then the wall at Stafford, then back into the Top 16. Year two is where a PRO career gets decided, and that's the season worth filming.
 >
 > We're casting Season 4 now. You'd be in the show all season, and every round we shoot content your partners can run as their own ads.
 >
 > Got 10 minutes at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
 
-### Ryan Litteral (PRO, Litteral Racing Nissan) @ryanlitteral
+### Ryan Litteral (PRO, Ryan Litteral Racing Nissan S15 #909, Kumho) @ryanlitteral
 
 > Hey Ryan. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. Season 3 we were embedded with Matt Field's team at every round.
 >
-> Pro 2 in 2014 to a decade in PRO. The grind seasons are the ones that actually explain this sport to people outside it.
+> Pro 2 in 2014, more than a decade in Formula DRIFT, and FD trusted you to help redesign the Indy course. The grind seasons are the ones that actually explain this sport to people outside it.
 >
 > We're casting Season 4 now. You'd be in the show all season, and every round we shoot content your partners can run as their own ads.
 >
