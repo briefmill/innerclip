@@ -34,6 +34,26 @@ Follow them first, then DM. Read each one out loud before sending.
 >
 > Got 10 minutes at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
 
+### Collete Davis (PROSPEC, Collete Racing BMW #77) @colletedavis
+
+> Hey Collete. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone through PROSPEC for three seasons.
+>
+> You already work on both sides of the lens, so you know what a brand can do with real footage versus a post.
+>
+> We're casting Season 4 now. You'd be in the show all season, plus content every round your partners can run as their own ads.
+>
+> Are you at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
+
+### Jerry Johnson (PROSPEC, Jerry Drift Toyota #97) @jerrydrift
+
+> Hey Jerry. Lox here, I make Inner Clip, the doc series we film inside the Formula Drift paddock. We've followed Christian Cotrone through PROSPEC for three seasons.
+>
+> "I like cats and going fast" is a better logline than most shows ever get. You'd be genuinely fun to film.
+>
+> We're casting Season 4 now. You'd be in the show all season, plus content every round your partners can run as their own ads.
+>
+> Are you at Long Beach? If not, 20 minutes here: calendar.app.google/JHYViWtyNVczoigt9
+
 ---
 
 ## Message 1: PRO driver
