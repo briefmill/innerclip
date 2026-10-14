@@ -10,7 +10,27 @@ Rules (from the Inner Clip style sheet): short, declarative lines. No em dashes.
 
 ---
 
-## Shortlist: ready to send
+## Approach (changed Oct 14)
+
+Small talk first, no pitch in the DM. The goal is to become someone they know before Long Beach, then make the ask in person at the finale. The casting messages further down are for later: after you've met, or for drivers who can't make Long Beach.
+
+## Friendly openers
+
+### Collete Davis @colletedavis
+
+> Hey Collete, it's Lox. I film Inner Clip with Christian Cotrone. That ENEOS E46 looked so good this year. Just watched your Indy video too, that weekend looked rough. You coming out to Long Beach for the finale?
+
+### Jerry Johnson @jerrydrift
+
+> Hey Jerry, it's Lox. I film Inner Clip with Christian Cotrone. Two C6s in PROSPEC this year, so I've been staring at Corvettes all season. Still pulling 4th at Indy with the power steering acting up was wild. You going to be at Long Beach?
+
+If they reply: keep it a conversation. Ask how the season felt and what they're thinking for 2027, then set a time to say hi in the paddock. Long Beach is a PRO-only round, so PROSPEC drivers may not be there. If they won't be, set up a call instead.
+
+---
+
+## Casting messages (later, after meeting)
+
+### Shortlist
 
 Follow them first, then DM. Read each one out loud before sending.
 
