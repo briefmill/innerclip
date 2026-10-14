@@ -12,9 +12,25 @@ Rules (from the Inner Clip style sheet): short, declarative lines. No em dashes.
 
 ## Approach (changed Oct 14)
 
-Small talk first, no pitch in the DM. The goal is to become someone they know before Long Beach, then make the ask in person at the finale. The casting messages further down are for later: after you've met, or for drivers who can't make Long Beach.
+Small talk first, no pitch in the DM. The goal is to become someone they know before Long Beach, then make the ask in person at the finale. Text Matt and Brandon who you're meeting before the weekend so nobody is surprised in the paddock. The casting messages further down are for later: after you've met, or for drivers who can't make Long Beach.
 
 ## Friendly openers
+
+### Branden Sorensen @branden_sorensen
+
+> Hey Branden, it's Lox. I film Inner Clip with Matt Field's team. Top 8 at every round this year is crazy consistent, and now it's you, Deane and Jack all within 3 points for P2. Plus Camren winning Indy at 14, the Sorensen group chat must be wild. Feeling good about Long Beach?
+
+### Dylan Hughes @dylanhughes129
+
+> Hey Dylan, it's Lox. I film Inner Clip with Matt Field's team. Been watching your raw edit vlogs, they're the realest thing in the paddock. You and Matt have had some battles too, Utah last year is still one of the wildest things I've seen. Got anything new on the car for Long Beach?
+
+### Cole Richards @colerichardz
+
+> Hey Cole, it's Lox. I film Inner Clip with Matt Field's team. Fourth at Long Beach in your PRO debut was a hell of a way to start. Going back there with the rookie title on the line, you feeling it? Also saw the E92 is almost done, what's that one for?
+
+### Ryan Litteral @ryanlitteral
+
+> Hey Ryan, it's Lox. I film Inner Clip with Matt Field's team. Saw you were one of the driver liaisons on the Indy course redesign with Matt and Gushi. How'd that come together? Would love to hear about it at Long Beach.
 
 ### Collete Davis @colletedavis
 
